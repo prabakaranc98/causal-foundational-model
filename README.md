@@ -1,1 +1,1 @@
-**AI Systems + Finance **
+**AI Systems + Finance**
